@@ -8,4 +8,4 @@
  
 
 ![68747470733a2f2f692e696d6775722e636f6d2f4c555a775844472e706e67](https://user-images.githubusercontent.com/62123515/226196058-8b2a47a9-ed4f-40ec-844e-b0fafce9ff06.png)
- [The Memory of Mumei](https://drive.google.com/uc?export=download&id=1AKsrc2PrWdA4MCGn6XtpYM_NU8ClKscL)
+ <center[The Memory of Mumei](https://drive.google.com/uc?export=download&id=1AKsrc2PrWdA4MCGn6XtpYM_NU8ClKscL)>
