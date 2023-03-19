@@ -1,11 +1,1 @@
-<!DOCTYPE html>
-<html lang="en">
-  <head>
-    <title>Aight</title>
-  </head>
-  <body>
-    <script>
-      console.log("hello world")
-    </script>
-  </body>
-</html>
+
