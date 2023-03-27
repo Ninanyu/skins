@@ -15,3 +15,6 @@
 [NM Sagittarius A](https://drive.google.com/uc?export=download&id=1VjVqzpib3gXYxhu191RouX96dOEpzpWv) |[DT Sagittarius A](https://drive.google.com/uc?export=download&id=1IMth22qWD5PcX8bllB-4Kf4JzVRB884m)
 ![68747470733a2f2f692e696d6775722e636f6d2f474f4c636f744d2e6a7067](https://user-images.githubusercontent.com/62123515/226196827-4c16979b-b780-486b-99be-d9e6ff184b0e.jpg)
 [momiji](https://drive.google.com/uc?export=download&id=1JpMJZ2P7pQn4O93PbLpWv2eDBQKc8AcN)
+
+![rGrSA6i](https://user-images.githubusercontent.com/62123515/228071207-84d6810f-a179-4cbf-bd81-f83050827fd9.jpeg)
+[- ミニマリスト](https://drive.google.com/uc?export=download&id=132geFO9CQ_wc8F1sg4-auP_YsGRqApjS)
