@@ -7,14 +7,12 @@
  [ 霜滅 SOUMETSU](https://drive.google.com/file/d/1Ipb8wEHViPHpzBRvKFGLjGfYs65foCsE/view?usp=sharing)
  ![68747470733a2f2f692e696d6775722e636f6d2f4c555a775844472e706e67](https://user-images.githubusercontent.com/62123515/226196058-8b2a47a9-ed4f-40ec-844e-b0fafce9ff06.png)
  [The Memory of Mumei](https://drive.google.com/uc?export=download&id=1AKsrc2PrWdA4MCGn6XtpYM_NU8ClKscL)
-[68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3437373139383535383934393430383738382f313034373331323334333532363239373734322f546f702e6a7067](https://user-images.githubusercontent.com/62123515/226196467-f6338f0d-975a-43f1-9699-4137841fda6d.jpg)
+![68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f3437373139383535383934393430383738382f313034373331323334333532363239373734322f546f702e6a7067](https://user-images.githubusercontent.com/62123515/226196467-f6338f0d-975a-43f1-9699-4137841fda6d.jpg)
 [NM Sagittarius A](https://drive.google.com/uc?export=download&id=1VjVqzpib3gXYxhu191RouX96dOEpzpWv) |[DT Sagittarius A](https://drive.google.com/uc?export=download&id=1IMth22qWD5PcX8bllB-4Kf4JzVRB884m)
 ![68747470733a2f2f692e696d6775722e636f6d2f474f4c636f744d2e6a7067](https://user-images.githubusercontent.com/62123515/226196827-4c16979b-b780-486b-99be-d9e6ff184b0e.jpg)
 [momiji](https://drive.google.com/uc?export=download&id=1JpMJZ2P7pQn4O93PbLpWv2eDBQKc8AcN)
-
 ![rGrSA6i](https://user-images.githubusercontent.com/62123515/228071207-84d6810f-a179-4cbf-bd81-f83050827fd9.jpeg)
 [- ミニマリスト](https://drive.google.com/uc?export=download&id=132geFO9CQ_wc8F1sg4-auP_YsGRqApjS)
-
 ![xvKny6T](https://user-images.githubusercontent.com/62123515/228071612-ced1334d-0e24-438a-b84d-27926955bd98.png)
 [minimalist 2.0](https://drive.google.com/uc?export=download&id=1ippKs9KRjaiEspTa8tEIxUNelFtvsDWO)
 ![68747470733a2f2f692e696d6775722e636f6d2f77544e655045442e6a706567](https://user-images.githubusercontent.com/62123515/228072071-c6090c93-95e6-483e-a9d1-910a84003566.png)
