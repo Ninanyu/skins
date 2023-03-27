@@ -17,3 +17,5 @@
 [minimalist 2.0](https://drive.google.com/uc?export=download&id=1ippKs9KRjaiEspTa8tEIxUNelFtvsDWO)
 ![68747470733a2f2f692e696d6775722e636f6d2f77544e655045442e6a706567](https://user-images.githubusercontent.com/62123515/228072071-c6090c93-95e6-483e-a9d1-910a84003566.png)
 [百鬼ネ DECADENCE](https://drive.google.com/uc?export=download&id=1Yo_axbMkqKjVUmfoXakiMYzx0tM8fgeE)
+![91304173_p0_master1200](https://user-images.githubusercontent.com/62123515/228073559-7c088696-bc7c-4af7-a4ae-f0caea7e8ef4.jpg)
+[Project IRyS](https://www.mediafire.com/file/mxo93xiam7seunq/-_%25E3%2580%258CTS%25E3%2580%258D-_Project_IRyS.osk/file)
