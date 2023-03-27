@@ -18,3 +18,6 @@
 
 ![rGrSA6i](https://user-images.githubusercontent.com/62123515/228071207-84d6810f-a179-4cbf-bd81-f83050827fd9.jpeg)
 [- ミニマリスト](https://drive.google.com/uc?export=download&id=132geFO9CQ_wc8F1sg4-auP_YsGRqApjS)
+
+![xvKny6T](https://user-images.githubusercontent.com/62123515/228071612-ced1334d-0e24-438a-b84d-27926955bd98.png)
+[minimalist 2.0](https://drive.google.com/uc?export=download&id=1ippKs9KRjaiEspTa8tEIxUNelFtvsDWO)
